@@ -1,2 +1,1 @@
-# Lambomax-kenji
-Helo 🗿🗿⚡⚡
+lambomax.github.io
