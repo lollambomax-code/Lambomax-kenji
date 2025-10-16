@@ -1,0 +1,2 @@
+# Lambomax-kenji
+Helo 🗿🗿⚡⚡
